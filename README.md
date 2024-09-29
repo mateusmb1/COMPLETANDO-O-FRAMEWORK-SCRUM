@@ -10,5 +10,8 @@ DESAFIO DE PROJETO: COMPLETANDO O FRAMEWORK SCRUM
     ![image](https://github.com/user-attachments/assets/36f536ed-8274-46a0-973b-edff4c7a3373)
 
 
-   ![image](https://github.com/user-attachments/assets/43783fe8-b6e0-48e5-8d33-943776f530b2)
-https://miro.com/welcomeonboard/Vm4zTklwMVdJSzBwNHQzV1lTSkpmOWU0cldXVGlZYWVEendyTWNLZHI3RjZGT09VWHh0a2RBa1g4Z2I3RXd0YXwzMDc0NDU3MzYzMjA2MDExOTMxfDI=?share_link_id=125353110686
+## DESAFIO DE PROJETO: ![image](https://github.com/user-attachments/assets/bf46a3d7-a084-4d20-93d2-3483dd3aa10e)
+
+
+ - 👆 [ COMPLETANDO O FRAMEWORK SCRUM](https://miro.com/welcomeonboard/Vm4zTklwMVdJSzBwNHQzV1lTSkpmOWU0cldXVGlZYWVEendyTWNLZHI3RjZGT09VWHh0a2RBa1g4Z2I3RXd0YXwzMDc0NDU3MzYzMjA2MDExOTMxfDI=?share_link_id=903892253370)
+   
